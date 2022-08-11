@@ -103,3 +103,9 @@
   </tr>
 </table>
 <br>
+
+### IT’S RDX TOUFIQ BRAND
+## CONTACT RDX TOUFIQ   
+ 1. [Facebook](https://www.facebook.com/Remember.This.Name.ToufiQ.K1NG) 
+ 2. [Facebook Page](https://www.facebook.com/RDX.T0UFIQ) 
+ 3. [Whatapp](https://wa.me/+8801812027446)
